@@ -5,7 +5,7 @@
 - 125 g butter
 - 100 g flour
 - 1 package walnuts or other nuts
-- 1 Tsp. baking soda (Natron)
+- 1 teaspoon baking soda (Natron)
 - 350 g Bananas (weighed including peel)
 - 1 pinch of salt
 
